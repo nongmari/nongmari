@@ -1,8 +1,12 @@
-- 👋 Hi, I’m @nongmari
-- 👀 I’m interested in ... sky
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+' Ꭵ mᎥss ᎽᎾu   ༄    ᥉ p r ι ᥒ ᧁ ｄᥲ ᥡ :black_joker:
+
+:balloon: Ⴆl᥆ᧁ   # djn  ᤨ      Ꭵ fᎬᎬᏞ.〕⭏
+
+  ﹫᥎Ꭵᥴ   Ⴆᥡ    -    Ⴆƚ᥉   «   ꫀ᥎ꫀᥒ ꪔꪮꧏꫀ‧₊˚ ➶
+
+:hearts: ⃗ᥕᦆᎬᥒ Ꭵ sᥑᥡ ƚᦆᥑƚ  ⃔   ﹋﹋﹋﹋﹋﹋
+
+
 
 <!---
 nongmari/nongmari is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
